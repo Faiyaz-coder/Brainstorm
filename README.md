@@ -1,2 +1,2 @@
 # Brainstorm
-This Repo is for what i practice for every topics
+This Repo is for pushing myself as far as i can to become limitless.
